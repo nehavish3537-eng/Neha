@@ -1,0 +1,3 @@
+A 57-year-old male with a known history of hypertension and type 2 diabetes mellitus was admitted with a diagnosis of non-ischemic infarction. The patient was administered intravenous Cerebro and intravenous piracetam.
+Following administration of these medications, the patient developed shivering, shortness of breath, and tachycardia, suggestive of an acute hypersensitivity/infusion-related reaction.
+The suspected medications were discontinued immediately, and the patient was treated with intravenous pheniramine (Avil), hydrocortisone, and paracetamol as stat doses. Following treatment, the patient's symptoms gradually resolved, and he recovered completely.
